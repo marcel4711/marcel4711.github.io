@@ -14,4 +14,4 @@ Viele von Clarkes Werken setzen auf aktuellen wissenschaftlichen Erkenntnissen u
 * 1988 Kinderlähmung
 * 2008 Verstorben
 
-> "Es gibt zwei Möglichkeiten: Entweder wir sind allein im Unimersum oder wir sind nicht. Beide sind gleichermassen erschreckend"
+> Es gibt zwei Möglichkeiten: Entweder wir sind allein im Unimersum oder wir sind nicht. Beide sind gleichermassen erschreckend
