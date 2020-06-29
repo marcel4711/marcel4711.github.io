@@ -14,4 +14,6 @@ Viele von Clarkes Werken setzen auf aktuellen wissenschaftlichen Erkenntnissen u
 * 1988 Kinderlähmung
 * 2008 Verstorben
 
-> Es gibt zwei Möglichkeiten: Entweder wir sind allein im Unimersum oder wir sind nicht. Beide sind gleichermassen erschreckend
+> Es gibt zwei Möglichkeiten: Entweder wir sind allein im Universum oder wir sind nicht. Beide sind gleichermassen erschreckend.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/d1/Clarke_sm.jpg/440px-Clarke_sm.jpg">
